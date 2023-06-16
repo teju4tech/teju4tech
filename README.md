@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **Web-development,API-Development**
 
-- 📫 How to reach me **solankitejpalsingh59@gmail.com**
+- 📫 How to reach me **21eng3cse1076@mandsouruniversity.edu.in**
 
 - ⚡ Fun fact **I'M Anime Lover.**
 
